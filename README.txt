@@ -1,1 +1,1 @@
-Witaj Gicie!
+Witaj Œwiecie!
